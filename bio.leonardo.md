@@ -1,0 +1,1 @@
+Meu nome e Leonardo Dos Santos Barbosa! Tenho 20 anos, faço aniversário no dia 17/05/2004... Atualmente curso sistemas para internet na unialfa. Trabalho com estratégia de e-commerce em uma empresa de contrução civil! Natural de Umuarama no paraná! Gosto muito de estudar
