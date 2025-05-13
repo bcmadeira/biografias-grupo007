@@ -1,1 +1,1 @@
-Olá! Eu sou Eduardo, tenho 18 anos, faço 
+Olá! Eu sou Eduardo, tenho 18 anos, sou católico, faço faculdade de Sistemas para internet na Unialfa, estou trabalhando de estagiário no DTI da Prefeitura de Umuarama-PR.
